@@ -1,0 +1,1 @@
+# Apuracao_da_Sensibilidade_dos_Patrimonios_Liquidos_dos_Fundos_de_Investimentos_aos_Fatores_de_Risco
